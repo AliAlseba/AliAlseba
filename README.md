@@ -1,2 +1,2 @@
-Hello, I'm Ali Alseba\n
+Hello, I'm Ali Alseba
 I'm a Chemical Engineer 🥼🧪
